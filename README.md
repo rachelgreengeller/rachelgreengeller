@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rachelgreengeller
 - 👀 I’m interested in learning new thingies...
-- 🌱 I’m currently learning Engineering
+- 🌱 I’m currently pursuing Engineering
 - 💞️ I’m looking to collaborate on umm don't know yet
 - 📫 How to reach me ..I'll share the links of socials..
 
